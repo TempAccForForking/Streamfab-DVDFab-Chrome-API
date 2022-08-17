@@ -8,3 +8,6 @@ You Deserve this Stream fab
 ************************************************
 With Love From Telly suck my Dick Stream Fab
 ************************************************
+
+#### Kanged From
+https://github.com/FuckUStreamfab/Streamfab-DVDFab-Chrome-API
